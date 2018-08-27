@@ -22,3 +22,24 @@ Material confined likewise it humanity raillery an unpacked as he. Three chief m
 On the other hand, we denounce with righteous indignation and dislike men who are so beguiled and demoralized by the charms of pleasure of the moment, so blinded by desire, that they cannot foresee the pain and trouble that are bound to ensue; and equal blame belongs to those who fail in their duty through weakness of will, which is the same as saying through shrinking from toil and pain. These cases are perfectly simple and easy to distinguish. In a free hour, when our power of choice is untrammelled and when nothing prevents our being able to do what we like best, every pleasure is to be welcomed and every pain avoided. But in certain circumstances and owing to the claims of duty or the obligations of business it will frequently occur that pleasures have to be repudiated and annoyances accepted. The wise man therefore always holds in these matters to this principle of selection: he rejects pleasures to secure other greater pleasures, or else he endures pains to avoid worse pains.
 #You're awesome, the world is shit!
 Guest it he tears aware as. Make my no cold of need. He been past in by my hard. Warmly thrown oh he common future. Otherwise concealed favourite frankness on be at dashwoods defective at. Sympathize interested simplicity at do projecting increasing terminated. As edward settle limits at in.
+# Maine mor si te tai cu lama
+Serios acuma, mori!
+
+### Cu drag, KetaminaCuCartofi!
+
+```c
+void violezPedale(int a){
+    cazanesti();
+}
+```
+
+1. mure de padure
+1. aveaoe
+1. _key_ la vene
+2. `cal` *uaie* **pedale** 
+
+ > citat din uaiele mele
+
+- [x] sapa o groapa
+- [ ] sapa o groapa
+- [ ] mori
